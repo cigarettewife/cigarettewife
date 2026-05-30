@@ -26,7 +26,7 @@
 
 ```bash
 Hi, my name is Clover, though I frequently prefer the name Quartz! I'm not great at icebreakers, so let's cut right to the 
-chase.  I'm an adult (22) non-binary individual, plural but NOT comfortable with being referred to with system labels
+chase.  I'm an adult (22) non-binary individual, plural but NOT comfortable with being referred to with system labels or
 identified as such. 
 
 I'm a being of flesh and blood with some form of neurodivergence, if you can't tell.
