@@ -12,9 +12,6 @@
   <div align="center"> 
   <img src="https://i.imgur.com/oQDJgc1.png" width="50%> 
 </div>   
-     ミ☆ 
-    <span>
-    </span>
 
    ミ☆ 
 
