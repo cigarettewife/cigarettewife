@@ -29,7 +29,7 @@ Hi, my name is Clover, though I frequently prefer the name Quartz! I'm not great
 chase.  I'm an adult (22) non-binary individual, plural but NOT comfortable with being referred to with system labels
 identified as such. 
 
-I'm a being of flesh and blood with some form of neurodivergence, if you can't tell /silly.
+I'm a being of flesh and blood with some form of neurodivergence, if you can't tell.
 
 I've been a digital artist for well over a decade and in various online communities for twelve.
 
