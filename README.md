@@ -46,10 +46,10 @@ Outside of medias, I'm currently working on self-studies into the basics of Micr
 into college for this as well! I have a major interest in other sorts of -ologies, particularly meteorology and virology.
 
 I have a ton of energy for the right people, if you're not really big on the idea of super hyperactive people it's best
-we don't interact, sorry!
+we don't interact, sorry! I love communication, just usually super scared to initiate it lol
 
 If I temporarily hide you, it's likely I'm not really comfortable w/the media you're displaying, sorry!
-I don't block unless something really bugs me lol
+I don't block unless something really bugs me
 ```
 
 <h1 align="center">
