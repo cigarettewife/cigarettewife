@@ -44,6 +44,12 @@ heart lol.
 
 Outside of medias, I'm currently working on self-studies into the basics of Microbiology! I've been considering going 
 into college for this as well! I have a major interest in other sorts of -ologies, particularly meteorology and virology.
+
+I have a ton of energy for the right people, if you're not really big on the idea of super hyperactive people it's best
+we don't interact, sorry!
+
+If I temporarily hide you, it's likely I'm not really comfortable w/the media you're displaying, sorry!
+I don't block unless something really bugs me lol
 ```
 
 <h1 align="center">
