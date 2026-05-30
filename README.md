@@ -44,6 +44,14 @@ Outside of medias, I'm currently working on self-studies into the basics of Micr
 for this as well! I have a major interest in other sorts of -ologies, particularly meteorology and virology.
 ```
 
+<h1 align="center">
+  <span>
+   ミ☆ 
+  </span>
+</h1>
+  <div align="center"> 
+</div>   
+
 ## ├──📂 File:// Contact
 
 ```bash
