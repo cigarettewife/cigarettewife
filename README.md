@@ -58,6 +58,14 @@ for this as well! I have a major interest in other sorts of -ologies, particular
 Connect with me:
 Get to know me first! If you're lucky, you'll get my Discord or something :)
 ```
+<h1 align="center">
+  <span>
+   ミ☆ 
+  </span>
+</h1>
+  <div align="center"> 
+</div>   
+
 
 ```og creds to magrelaio , found through abhisheknaiidu's awesome repositories```
 
