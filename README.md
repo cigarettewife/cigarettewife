@@ -13,7 +13,14 @@
   <img src="https://i.imgur.com/oQDJgc1.png" width="50%> 
 </div>   
 
+<h1 align="center">
+  <span>
    ミ☆ 
+  </span>
+</h1>
+  <div align="center"> 
+</div>   
+  
 
 ## ├──📂 File:// Fallen Star
 
