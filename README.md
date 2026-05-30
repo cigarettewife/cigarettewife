@@ -54,8 +54,8 @@ for this as well! I have a major interest in other sorts of -ologies, particular
 
 ## ├──📂 File:// Contact
 ```bash
-          Connect with me:
-          Get to know me first! If you're lucky, you'll get my Discord or something :)
+                          Connect with me:
+                          Get to know me first! If you're lucky, you'll get my Discord or something :)
 ```
 
 ```og creds to magrelaio , found through abhisheknaiidu's awesome repositories```
